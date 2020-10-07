@@ -14,10 +14,10 @@
 <br>Email: <a href="canhonewgalaxy.vn@gmail.com">canhonewgalaxy.vn@gmail.com</a>
 
 <br><br>Mạng xã hội:
-https://canhonewgalaxy.bcz.com/
-https://tapas.io/canhonewgalaxy
-https://www.mixcloud.com/newgalaxycanho/
-https://newgalaxycanho.business.site/posts/4266668819498303291
-https://canhonewgalaxy.hpage.com/
+<br>https://canhonewgalaxy.bcz.com/
+<br>https://tapas.io/canhonewgalaxy
+<br>https://www.mixcloud.com/newgalaxycanho/
+<br>https://newgalaxycanho.business.site/posts/4266668819498303291
+<br>https://canhonewgalaxy.hpage.com/
 
 
